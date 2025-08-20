@@ -8,7 +8,7 @@
 
 ## 📅 When & Where
 - **New workshop every week**  
-- Watch on our [YouTube Channel](https://www.youtube.com/)  
+- Watch on our [YouTube Channel](https://www.youtube.com/playlist?list=PL6FWNwNPGCE7t6IyA6NcgJN80qPZBjkQP)  
 - Learn at your own pace  
 
 ## 🙌 Join Us
