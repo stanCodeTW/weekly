@@ -1,6 +1,3 @@
-# weekly
-stanCode weekly coding workshop on our YouTube Channel
-
 #📚stanCode Weekly Coding Workshop
 
 Welcome to the stanCode Weekly Coding Workshop on our 🎥 YouTube Channel
